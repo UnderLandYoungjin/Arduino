@@ -11,13 +11,6 @@ https://github.com/user-attachments/assets/032b80ff-4880-4e1f-9270-bc7104b56864
 
 ---
 
-모터 구동영상
-
-https://github.com/user-attachments/assets/de5254bd-c474-4f81-ad32-d4868167b4b0
-
-
----
-
 
 
 
